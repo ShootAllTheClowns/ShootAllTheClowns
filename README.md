@@ -1,6 +1,6 @@
 ![profile view counter on GitHub](https://komarev.com/ghpvc/?username=ShootAllTheClowns)
 
-<p align=center><img src="https://i.pinimg.com/originals/f2/90/af/f290af2eabde4a3ca7639a966027b72d.gif"/>
+<p align=center><img src="https://i.pinimg.com/originals/32/1c/c2/321cc2db633d48165603f780f9b4b6c5.gif"/>
 <p align=center><img src="https://64.media.tumblr.com/5e0f8cc60c3a2fe139699d464560fd3f/8b534700d0de740d-1c/s540x810/2e3d566a4b4f8546a6c5b33108f949547d3e3acb.gifv"/>
 <p align=center>ʙʀᴜᴄᴇ ㅤㅤㅤㅤㅤㅤㅤㅤㅤ 𓂃 ㅤㅤㅤㅤㅤㅤㅤㅤㅤ ʜᴇ ʜɪᴍ  ㅤㅤㅤㅤㅤㅤㅤㅤㅤ𓂃  ᴇɪɢᴛᴇᴇɴ
 <p align=center>ɪʀɪꜱʜ ㅤㅤㅤㅤㅤㅤㅤㅤㅤ 𓂃ㅤㅤㅤㅤㅤㅤㅤㅤㅤ  ᴄɪꜱ ɢᴀʏ
